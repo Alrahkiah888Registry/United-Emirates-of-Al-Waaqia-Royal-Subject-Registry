@@ -1,2 +1,2 @@
 # United-Emirates-of-Al-Waaqia-Royal-Subject-Registry
-This Repository Is Electronic Testament and Signature Proclaimation Of Moorish Ancestry And Competent Moor Status As A Moorish Subject In Active Will, And Direct Action to The Pursuit of Happiness for Moorish Subjects Whom Enact Decolonization And Have Given Power of Attorney to Their Naturalized estates and Absolute Authority to Al-Waaqia Emirate.
+This Repository Is Electronic Testament and Signature Proclaimation Of Moorish Ancestry And Competent Moor Status As A Moorish Subject In Active Will, And Direct Action to The Pursuit of Happiness for Moorish Subjects Whom Enact Decolonization And Have Given Power of Attorney to Their Naturalized estates and Absolute Authority to Al-Waaqia Emirate All Rights Reserved.
